@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AnastasiaCoolHR
+- 👀 I’m interested in IT recruiting for tech companies 
+- 🌱 I’m currently learning AI tools for HR
+- 💞️ I’m looking to collaborate in recruiting for tech comlanies and startups
+- 📫 How to reach me ana@coolhr.pro tg @IamAnastasiyaMorozova https://www.linkedin.com/in/anastasia-morozova-hr/
